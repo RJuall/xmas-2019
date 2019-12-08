@@ -1,3 +1,7 @@
+---
+page.title: Lorem
+---
+
 # RJuall's X-Mas Wish List
 
 ## The List
