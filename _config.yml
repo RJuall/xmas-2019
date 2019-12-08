@@ -1,4 +1,4 @@
 title: Robert's X-Mas 2019 Wish List
 titles_from_headings:
-  strip_title: false
+  strip_title: true
 theme: jekyll-theme-tactile
