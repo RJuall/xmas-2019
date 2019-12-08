@@ -1,5 +1,3 @@
-Here are some things, big and small, that I would be happy to receive!
-
 ## The List
 
  - [GOT music box](https://www.amazon.com/dp/B07D1Q8JGM)
