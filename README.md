@@ -1,8 +1,4 @@
----
-page.title: Lorem
----
-
-# RJuall's X-Mas Wish List
+Here are some things, big and small, that I would be happy to receive!
 
 ## The List
 
