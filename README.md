@@ -1,7 +1,3 @@
----
-title: Robert Juall's X-Mas List
----
-
 ## The List
 
  - [GOT music box](https://www.amazon.com/dp/B07D1Q8JGM)
