@@ -8,8 +8,8 @@ With love & share in kind! -RJ
 
  - [GOT music box](https://www.amazon.com/dp/B07D1Q8JGM)
  - Little things for my desk at work, [for example](https://www.amazon.com/Dreams-USA-Smiski-Glow-Figure/dp/B08172SDZ7/ref=sr_1_18?keywords=smiski&qid=1575836712&s=toys-and-games&sr=1-18)
- - A 10-12oz. ceramic coffee mug with a lid
- - [Fancy soap](https://www.shop.sweetramasoap.com/category.sc;jsessionid=D75F862FCBACD7A39A437DFBF1CA629D.p3plqscsfapp006?categoryId=5) or [Fancier soap](https://www.mistralsoap.com/collections/mens-collection)
+ - ~~A 10-12oz. ceramic coffee mug with a lid~~ -*Thank you Ally!*
+ - [Fancy soap](https://www.shop.sweetramasoap.com/category.sc;jsessionid=D75F862FCBACD7A39A437DFBF1CA629D.p3plqscsfapp006?categoryId=5) or [Fancier soap](https://www.mistralsoap.com/collections/mens-collection) -*Thank you Mom!*
  - [Anything and everything from Mala Market](https://themalamarket.com/collections/all)
  - [A tiny concrete home](https://www.etsy.com/shop/MaterialImmaterial)
  - [Beans!](https://www.ranchogordo.com/collections/samplers-and-sets/products/deluxe-gift-box)
